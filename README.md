@@ -1,2 +1,3 @@
 **pham-brandon@outlook.com**  
-**[linkedin.com/in/pham-brandon2](https://www.linkedin.com/in/pham-brandon2)**
+**[linkedin.com/in/pham-brandon2](https://www.linkedin.com/in/pham-brandon2)**  
+**[brandonpham.dev](https://www.brandonpham.dev)**
