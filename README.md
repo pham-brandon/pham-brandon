@@ -1,1 +1,2 @@
-📧 pham-brandon@outlook.com
+pham-brandon@outlook.com
+linkedin.com/in/pham-brandon2
